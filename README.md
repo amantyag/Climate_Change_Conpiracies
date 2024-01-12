@@ -1,4 +1,4 @@
-# Climate Change Conpiracies
+# Climate Change Conspiracies
 
 
 ## Example Tweets Related to Conspiracy Theories
